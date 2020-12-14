@@ -1,3 +1,1 @@
-### Hey, I`m Rina 👋
-
-I'm currently working on a cub3d
+### Hi, I'm a school-21 cheater :)
