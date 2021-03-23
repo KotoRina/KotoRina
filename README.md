@@ -1,1 +1,2 @@
-### Hi, I'm a school-21 cheater :)
+###Hi, I'm a student at School 21
+###Currently working on a cube3d project
